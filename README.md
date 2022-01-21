@@ -11,4 +11,4 @@ Fill in the form and be ready to bring to your tables the colors, perfumes and m
 Giuliana Giardina [giuliana.giardina90@gmail.com](mailto:giuliana.giardina90@gmail.com?subject=[GitHub]%20Read%20Me)
 
 ## NB: 
-E' incluso il file export di WP.
+Please, find the export at the following link: https://we.tl/t-e92d0bMKWt 
